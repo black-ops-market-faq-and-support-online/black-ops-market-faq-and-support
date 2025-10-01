@@ -33,4 +33,6 @@ Tips for Getting Help
 
 For official support and FAQ access, visit Black Ops via the secure link: **http://blackopsaax7ieeljectvi3vn3a5m2wfssylcdqaswrvlbeptwzv5oid.onion**
 
-Update:  09/18/2025
+
+
+Update:  Wednesday 01 October 2025
